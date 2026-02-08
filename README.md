@@ -16,7 +16,7 @@ i have social anxiety
 </p>
 <br>
 <p align="center">
-  <a href=https://rentry.co/hyrulewarriorss>rrentry</a> ⠀⠀ <a href=https://windwakerss.atabook.org>atab</a>
+  <a href=https://rentry.co/hyrulewarriorss>rrentry</a> ⠀⠀ <a href=https://windwakers.atabook.org>atab</a>
 </p>
 
 <br>
