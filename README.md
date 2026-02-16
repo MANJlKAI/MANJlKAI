@@ -21,10 +21,6 @@ i have social anxiety
 
 <br>
 
-guys thus video aint mine credits to the owner i just find it funny ok bye
-<div align="center">
-  <video src="https://github.com/user-attachments/assets/1400b7b7-d9c3-4e24-8f25-a98a318a82c8" />
-<div/>
 
   
 
