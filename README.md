@@ -19,6 +19,11 @@ i have social anxiety
   <a href=https://rentry.co/hyrulewarriorss>rrentry</a> ⠀⠀ <a href=https://windwakers.atabook.org>atab</a>
 </p>
 
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ufb6vxlswtxi6nlgxopwipjhnm&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color=53b14f&bar_color_cover=false&mode=light">
+  </a>
+</p>
 <br>
 
 
