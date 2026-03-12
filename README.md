@@ -25,7 +25,12 @@ i have social anxiety
 </p>
 <br>
 
+OKAY GUYS to tell u I DO NOT PLAY PT EVERYDAY possibly locked in watching tokyo revengers SO PLEAAAASE if you ever whisper to me, MAKE SURE YOU SIGN MY ATA so that I can see it aight? I'm offtab always and I disconnect everytime, ok? SO JUST TO LET U KNOWn!
 
+<img width="351" height="251" alt="1113" src="https://github.com/user-attachments/assets/d161c2e9-1be6-4485-a6ea-b1e2d16b562f" />
+
+</p> 
+ and to whoever whispered this to me THANK YOU because yes I'm a Kazutora fan #sharing ig and he's just a cutie patootie just LOOK i buyed a valhalla jacket just fo add it to my collection<3
   
 
 
