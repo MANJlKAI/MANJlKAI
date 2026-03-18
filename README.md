@@ -7,7 +7,8 @@ am i really that dramatic
 </p>
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/b6e0355a-3b7e-4dcf-b640-c25a251c61ef" width="400"/>
+  <img src="https://github.com/user-attachments/assets/bffacc9c-eed8-4f86-996e-ce2bb80a9345" width="400"/>
+   
 </p>
 <p align="center">
 ME AND BRO literally
