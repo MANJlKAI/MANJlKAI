@@ -7,15 +7,19 @@ hola manzanas club dni weirdos/j
 </p>
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/bffacc9c-eed8-4f86-996e-ce2bb80a9345" width="400"/>
-   
+  <img src="https://github.com/user-attachments/assets/8ed97de9-fa0d-467f-bb5b-b43221d3dcd2" width="400"/>
+
+  
 </p>
 <p align="center">
-theres no way that no one knew I loved this anime since 2021 I was late but yeah
+Team Walhalla!
 </p>
 <p align="center">
-hi Samu, hi Dorian, hi Sasha!
-  02:03 PM[Luckiest boy] Tell him to make it himself hah01:54 PM[Luckiest boy] I DIDNT THOUGHT BOXERS WAS TJAT BAD
+Mayday
+If there is nobody(peek a boo), brains will be lazy
+Looking for a be-bop life
+Hanging low, daydreams, No, No, No
+Praying to god obviously
 </p>
 <br>
 <p align="center">
