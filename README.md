@@ -1,6 +1,6 @@
 <div align="center">
 
-TOKYO WONDER : NAKIMUSHI
+$${\color{red}TOKYO\space WONDER\space !}$$
 
 <p align="center">
   
