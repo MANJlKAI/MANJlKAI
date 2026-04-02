@@ -1,6 +1,6 @@
 <div align="center">
 
-$${\color{red}TOKYO\space WONDER\space !}$$
+$${\color{red}TOKYO\space WONDER\space }$$
 
 <p align="center">
   
