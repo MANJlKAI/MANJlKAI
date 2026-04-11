@@ -1,4 +1,3 @@
-![](https://komarev.com/ghpvc/?username=MANJlKAI)
 
 <div align="center">
 
