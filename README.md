@@ -1,7 +1,7 @@
 
 <div align="center">
 
-$${\color{yellow}gore\space core\space }$$
+$${\color{Blue}DETECTIVE\space CONAN\space }$$
 
 <p align="center">
   
@@ -14,7 +14,7 @@ will you hit this silly kaito kid for money?
   
 </p>
 <p align="center">
-you're not alone.
+"KAITO KID!!!"
 </p>
 <p align="center">
 
